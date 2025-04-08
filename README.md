@@ -15,8 +15,14 @@ Meu objetivo vai além de apenas realizar vendas. Busco construir uma comunidade
 Como trabalho para alcançar meus objetivos:
 
 Comunicação eficiente: Respondo a todas as mensagens e perguntas rapidamente e com clareza.
+
 Atendimento personalizado: Escuto atentamente as necessidades dos meus clientes e ofereço soluções personalizadas.
+
 Produtos de qualidade: Ofereço produtos cuidadosamente selecionados, garantindo a satisfação dos meus clientes.
+
 Transparência: Sou honesto e transparente em todas as minhas comunicações.
+
 Construção de relacionamento: Busco construir relacionamentos duradouros com meus clientes, baseados na confiança e no respeito mútuo.
+
 Espero que este texto seja útil! Entre em contato se precisar de mais alguma coisa.
+
